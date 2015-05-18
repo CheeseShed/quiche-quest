@@ -5,7 +5,7 @@
 
 The quest took a small step for mankind, but a giant quiche-shaped leap for tasty treats in it's second stab at whipping up a masterpiece.
 
-For a second week, the quiche was nommed down pretty sharpish with no complaints about the uner-cooked pastry... because this week, THERE WAS NONE! Blind-baking beads were purchased and actually used in almost the right way. (I'll pretend I missed Ian knocking a wedge of pastry off the edge trying to scoop up hot stones)
+For a second week, the quiche was nommed down pretty sharpish with no complaints about the under-cooked pastry... because this week, THERE WAS NONE! Blind-baking beads were purchased and actually used in almost the right way. (I'll pretend I missed Ian knocking a wedge of pastry off the edge trying to scoop up hot stones)
 
 **The Good** light and fluffy again, tasty meaty sausage
 
