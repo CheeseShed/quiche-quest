@@ -1,5 +1,22 @@
 # Quiche Quest
 
+## Welsh Popeye
+**12th July 2015**
+
+After quiching ourselves out in May we return to the land of egg and cheese. This time we decided to take on a new challenge; make the pastry ourselves and for added difficulty we're using gluten free flour.
+
+As this was the first time we had made pastry we ran into some difficulty with the recipe. After leaving the dough in the fridge we discovered it to be sticky and awkward to roll out. However, after some gentle manipulation we forced the dough into the baking tin.
+
+For the filling we used spinach, leeks and a little bacon and garlic. The result was delicious apart from the troubles with making the pastry. Gluten free quiche is a success.
+
+**The Good** spinach and leek quiche is delicious
+
+**The Bad** more practice is needed when it comes to making dough from scratch especially when it is gluten free
+
+![Welsh Popeye #3 quiche](https://igcdn-photos-b-a.akamaihd.net/hphotos-ak-xfa1/t51.2885-15/11428160_1012863722057625_488828066_n.jpg)
+
+Quiche #3 by [@ihuntington](https://instagram.com/p/5DIk1JAMIf/)
+
 ## Jose's Sausage
 **18th May 2015**
 
